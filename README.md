@@ -2,7 +2,7 @@
 - 👀 I’m interested in python, machine learning, AI and Gaming😎😤
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on python
-- 📫 How to reach me 
+- 📫 How to reach me IG @_willy.j
 - 😄 Pronouns: He...right?
 - ⚡ Fun fact: I'm a dancer
 
