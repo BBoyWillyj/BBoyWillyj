@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BBoyWillyj
-- 👀 I’m interested in python, machine learning, AI and Gaming😎😤
+- 👀 I’m interested in python, machine learning, and AI😎😤
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on python
 - 📫 How to reach me IG @_willy.j
